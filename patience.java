@@ -1,2 +1,2 @@
 more patience
-more learn
+better learn
